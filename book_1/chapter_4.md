@@ -79,15 +79,15 @@ He had leapt to his feet. Boi was amgery, no cap. The Dursleys were triggered ag
 
 "Do you mean ter tell me," he growled at the Dursleys, "that this boy -- this boy! -- knows nothin' abou' -- about ANYTHING?"
 
-Harry thought this was going a bit far. He had been to school, after all, and his marks weren't bad.
+Harry thought this was overkill fr. He had been to school, and he was cookin in class.
 
-"I know some things," he said. "I can, you know, do math and stuff."
+"I know the shit," he said. "I can do math yk."
 
 But Hagrid simply waved his hand and said, "About our world, I mean. Your world. My world. Yer parents' world."
 
 "What world?"
 
-Hagrid looked as if he was about to explode.
+Hagrid was lookin mad triggered fr.
 
 "DURSLEY!" he boomed.
 
@@ -103,9 +103,9 @@ Uncle Vernon, who had gone very pale, whispered something that sounded like "Mim
 
 Uncle Vernon suddenly found his voice.
 
-"Stop!" he commanded. "Stop right there, sir! I forbid you to tell the boy anything!"
+"Nah, bruh" he commanded. "Ain't no way you tellin that mf shit."
 
-A braver man than Vernon Dursley would have quailed under the furious look Hagrid now gave him; when Hagrid spoke, his every syllable trembled with rage.
+A braver man than Vernon Dursley would have quailed under the triggered look Hagrid now gave him; when Hagrid spoke, his every syllable trembled with rage.
 
 "You never told him? Never told him what was in the letter Dumbledore left fer him? I was there! I saw Dumbledore leave it, Dursley! An' you've kept it from him all these years?"
 
@@ -117,7 +117,7 @@ Aunt Petunia gave a gasp of horror.
 
 "Ah, go boil yer heads, both of yeh," said Hagrid. "Harry -- yer a wizard."
 
-There was silence inside the hut. Only the sea and the whistling wind could be heard. "I'm a what ?" gasped Harry.
+There was silence inside the hut. Only the sea and the whistling wind could be heard. "Nah bruh, you cappin" said Harry. "A what?"
 
 "A wizard, o' course," said Hagrid, sitting back down on the sofa, which groaned and sank even lower, "an' a thumpin' good 'un, I'd say, once yeh've been trained up a bit. With a mum an' dad like yours, what else would yeh be? An' I reckon it's abou' time yeh read yer letter."
 
@@ -129,7 +129,7 @@ Headmaster: ALBUS DUMBLEDORE
 
 *(Order of Merlin, First Class, Grand Sorc., Chf. Warlock, Supreme Mugwump, International Confed. of Wizards)*
 
-Dear Mr. Potter,
+Yo Potter,
 
 We are pleased to inform you that you have been accepted at Hogwarts School of Witchcraft and Wizardry. Please find enclosed a list of all necessary books and equipment. Term begins on September 1. We await your owl by no later than July 31.
 
